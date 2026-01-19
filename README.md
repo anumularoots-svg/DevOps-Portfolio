@@ -27,7 +27,7 @@
 ---
 
 📄 [Download My Resume](./resume/AnilKumar_Senio_DevOpsEngineer.pdf)  
-🔗 [View My LinkedIn Service Page](https://www.linkedin.com/in/anumulasetty)  
+🔗 [View My LinkedIn Service Page](https://www.linkedin.com/services/page/b68b82341649747922/)  
 
 ---
 
